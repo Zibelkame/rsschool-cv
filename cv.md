@@ -5,4 +5,4 @@
 ### Contacts:
 ##### Discord: Zibelkame.de#9867
 ##### Phone number: 8 999-755-44-13
-##### Email: Zibelkame.de@mail.r
+##### Email: Zibelkame.de@mail.ru
