@@ -1,1 +1,1 @@
-# rsschool-cv
+# https://zibelkame.github.io/rsschool-cv/cv
